@@ -11,3 +11,5 @@ thats the problem with you guys not responding to your emails bc HE WAS RESPONDI
 but i didnt care what he said
 
 he wrote that email first thing in the morning, like he was in a hurry to write that email, fking moron
+
+did it work? NO. did i stop writing to you? no i didnt. did i stop re-applying? no i didnt. he's a fking loser, there's a special place in hell for ppl like this u and i both know that. hes absolute trash in academia.
