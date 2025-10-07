@@ -5,3 +5,7 @@ u of delaware is where that bioinformatician they hired when i was there, who wa
 temple is in philly, so he wanted me to NOT be in NYC but be near his ugly ass face in philly
 
 ![img](https://raw.githubusercontent.com/ionicstraw/JasonMooreShouldHaveBeenOnS-U-I-C-I-D-EWatchSinceFebApril2017HesBeenWanting2TakeEveryoneOutWithHim/refs/heads/main/the-contents-of-this-post-are-not-related-to-the-title-of-this-repos_not-at-all_its-just-funny_the-post-that-is-pt4-but-good-riddance.png)
+
+thats the problem with you guys not responding to your emails bc HE WAS RESPONDING to his emails, that's the fking problen with all of that
+
+but i didnt care what he said
