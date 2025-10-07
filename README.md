@@ -1,0 +1,1 @@
+# HeOutedHisMotivesLikeAnIdiot2019WantedMeToNotBeInNYC_WantedMeToGetIntoALowerRankingSchoolLikeHimself
