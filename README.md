@@ -9,3 +9,5 @@ temple is in philly, so he wanted me to NOT be in NYC but be near his ugly ass f
 thats the problem with you guys not responding to your emails bc HE WAS RESPONDING to his emails, that's the fking problen with all of that
 
 but i didnt care what he said
+
+he wrote that email first thing in the morning, like he was in a hurry to write that email, fking moron
