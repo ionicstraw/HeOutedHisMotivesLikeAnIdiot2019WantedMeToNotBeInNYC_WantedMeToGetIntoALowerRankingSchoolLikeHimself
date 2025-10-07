@@ -17,3 +17,5 @@ did it work? NO. did i stop writing to you? no i didnt. did i stop re-applying? 
 https://media1.tenor.com/m/tQsEuOLGy5YAAAAd/tim-gunn-eww-gross.gif what ppl do with their lives and how they waste it is so sad and weird
 
 this is an incredibly, incredibly weak person, its like hes made out of 1-ply toilet paper thats already soaking wet, he could not handle a resignation from his shit hole, thats so crazy, what a crazy fking person
+
+https://www.tiktok.com/@obviouslyalvin/video/7556223960233364767 jason's just really mentally ill, __none__ of this is normal esp since i dunno him or those other weirdos, paul, hannah, all 3 prolly have the same issues
