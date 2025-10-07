@@ -13,3 +13,5 @@ but i didnt care what he said
 he wrote that email first thing in the morning, like he was in a hurry to write that email, fking moron
 
 did it work? NO. did i stop writing to you? no i didnt. did i stop re-applying? no i didnt. he's a fking loser, there's a special place in hell for ppl like this u and i both know that. hes absolute trash in academia.
+
+https://media1.tenor.com/m/tQsEuOLGy5YAAAAd/tim-gunn-eww-gross.gif what ppl do with their lives and how they waste it is so sad and weird
